@@ -1,0 +1,2 @@
+# yangintespiti
+Orman Yangin Tespiti
